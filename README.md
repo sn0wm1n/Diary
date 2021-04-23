@@ -1,0 +1,2 @@
+# Diary
+my struggle way
